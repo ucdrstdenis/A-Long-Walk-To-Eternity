@@ -4,4 +4,4 @@ Although this story uses real people as characters, draws inspiration from real-
 An overworked graduate engineer begins experiencing unexplainable events while finishing his thesis in 2017.
 
 **The first of several books.**
-**This story has changed from the original synopsys and was written and created by a professional, other than myself**.
+**This story written and created by a professional, other than myself**.
